@@ -10,7 +10,4 @@ if you like what I'm doing and want to support me to improve, please consider do
 Buy me a 🍕🥧 https://www.paypal.com/paypalme/claudemods?country.x=GB&locale
 
 
-download 
-https://www.pling.com/p/2194902/
-
 ![ohyes](https://github.com/user-attachments/assets/0f0e51d7-96af-4998-8b5a-7992c2ceef5d)
